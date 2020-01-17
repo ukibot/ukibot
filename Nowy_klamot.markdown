@@ -1,0 +1,6 @@
+# Nowy klamot - statyw Slik Sprint Mini
+2020-01-11
+
+Odkąd mam regularne wypłaty, łatwiej jest mi się zakrzątnąć wokół uzupełnienia luk w posiadanym mieniu albo podniesienia standardu tego, co posiadam. Miałem (i nadal mam) dość męczący statyw Triopo. Niewysoki, dość lekki. Nogi zakręcane zamiast takich na klips, głowica stale wysunięta, dość duża objętość, kłopotliwe składanie. Spełniał swoją funkcję całkiem dobrze, ale skorzystałem z okazji i wymieniłem go na nieco lżejszy, nieco niższy i nieco bardziej wygodny w użytkowaniu statyw Slik Sprint III Mini. Z poprzedniego statywu korzystałem kilka ładnych lat, ostatnim razem zatargałem go nad j. Fletnowskie, fotografowałem tam przez kilka godzin moczary, okoliczny las i samo jezioro i jak zwykle dał radę.
+Nowy też statyw zabrałem na spacer. Wysokość do TLRa była w sam raz, waga i rozmiar umożliwiają przenoszenie w torbie. Jest dobrze, zamierzam go używać. Pewne rzeczy mogą się okazać kłopotliwe, np. mocowanie szybkozłączki wyłącznie przy użyciu jakiegoś narzędzia w rodzaju scyzoryka albo monety albo fakt, że większość zdjęć zrobiłem z wysuniętą kolumną. Ale nie zamierzam się tym przejmować. Jest dobrze. I bardzo, bardzo lekko. Zobaczę jak ta rzecz będzie się starzała, czy się nie roztelepie od brudu i piachu. Z radością zobaczę.
+
